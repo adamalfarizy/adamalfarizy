@@ -1,3 +1,3 @@
 ### Hi there 👋
 
-My name is **Adam Alfarizy**./
+My name is **Adam Alfarizy**
